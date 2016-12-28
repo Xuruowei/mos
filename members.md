@@ -6,7 +6,7 @@
 > 我是一个：
 >
 >* 还有两年就要毕业的研一猫
->* Github Heavy User，可以不吃饭，不能不上同性交友网站
+>* Github Heavy User，可以不吃饭，不能不上同性交友网站；绝对不可以不吃饭(╯‵□′)╯︵┻━┻
 >* 刺客信条粉，虽然已经不怎么玩了
 >
 > More on [About Me](http://gaocegege.com/Blog/about/) or [My Resume](http://gaocegege.com/resume/cn/)
